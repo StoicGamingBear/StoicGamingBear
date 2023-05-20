@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @StoicGamingBear
+- 👀 I’m interested in C++, Robotics, getting my first developer job.
+- 🌱 I’m currently learning Web app and Mobile app development.
+- 💞️ I’m looking to collaborate on anything that will help me learn. I am going through community college for computer science now so I need something beginner friendly
+- 📫 How to reach me Email: johnsonron@plano88.net.
